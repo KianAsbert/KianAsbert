@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @KianAsbert
+- 👀 I’m interested in swimming, gaming and many other things!
+- 🌱 I’m currently learning idk really LoL
+- 💞️ I’m looking to collaborate on Discord
+- 📫 How to reach me just dm me. Maybe on Insta (Kian_Asbert) or on Snapchat (Kian9619)
+- 💥 Anyways i working on a Discord Server link https://discord.gg/zQCPWe93h6
